@@ -1,0 +1,655 @@
+vaillant热水器显示f.20错误售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月06日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括vaillant热水器显示f.20错误售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+vaillant热水器显示f.20错误售后电话400-811-596024小时售后服务热线上线（（2026年07月06日官网公布）最新公告）
+vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+vaillant热水器显示f.20错误售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+vaillant热水器显示f.20错误售后电话400-811-5960公司主营vaillant热水器显示f.20错误售后电话400-811-5960维修 →vaillant热水器显示f.20错误售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，vaillant热水器显示f.20错误售后电话400-811-5960服务承诺?.
+北京市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/bdod1982/shouhhou/commit/caf08bb078a2189f06890afb720ea086b859f95d
+。
+南京市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/0b610cde2da404729b15d6f6a57022938d6cd6c9
+。
+秦皇岛市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/b8e406071e239173c546a649edd2c4dc35a9d0c7
+。
+珠海市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/helteal/shanghai/commit/a46da05744f66e66d9e636a48a104737a94e00ab
+。
+安康市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/bdod1982/shouhhou/commit/5ec66a0e2f212b1d78e864e22459e0e697e9a3f1
+。
+安庆市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/95990fe03de7b0465e54c3d2cdfb006b99e3a118
+。
+鞍山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/f4a5700a09f77f135baacb1efa7b0ffa429376bb
+。
+安阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/helteal/shanghai/commit/f4dd84986d8411bb63e8c67fb76d775765cde6cc
+。
+巴中市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/6cfdf053b67a0bcf35d888534ae908584394977e
+。
+百色市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/bdod1982/shouhhou/commit/c07f6ecd78844ea5d55be8737011d853660a1f36
+。
+蚌埠市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/568676363a48d578d014dcac5df841258eea91d9
+。
+保定市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/helteal/shanghai/commit/240aeaa23c29b387e840c3ff5f917cb0c75c92b3
+。
+宝鸡市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/aaabfa6d432da3a45b02e762bd82fb230fb4fe2d
+。
+保山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/bdod1982/shouhhou/commit/bede45d0543df46cd82f999632036f79b6f1cf71
+。
+包头市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/8a6b7d28fde9278f0f516d71632e479ea9e221c5
+。
+北海市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/helteal/shanghai/commit/bb729e75272b36082314f1aacddfb2028b476923
+。
+本溪市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/48d1582e2b0b4924e56d4b26cf5ee8f8838d820d
+。
+滨州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/bdod1982/shouhhou/commit/ffdfe7da050f049065792794e40cc9cbf41bff3a
+。
+博罗市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/9619be9db62e0baa39f7b6f7b82990129b938c81
+。
+沧州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/47cd0c9b7a34b7c2e3002a1a078293a91d63ba24
+。
+长春市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一公布），点击查询：https://github.com/helteal/shanghai/commit/72a2cbed9df73df55baf3fbbb2a5a1564534a506
+。
+常德市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/bdod1982/shouhhou/commit/5167aa08c6b3488cbd60efa19888a2e7ee433d7e
+。
+长葛市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/789770d1b645aa572d6df4532644170e2053362e
+。
+长沙市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/helteal/shanghai/commit/600d05ffc115e1b0a7c0ebac4563418b28a7085d
+。
+常熟市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/631d9e1dc481ab4974d05f49c3b1e971ec39b69e
+。
+长兴市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新上线），点击查询：https://github.com/bdod1982/shouhhou/commit/68f7a215b3e3b950b6d2c3a76fb79a0e13671ed7
+。
+长治市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/0814b4a9640657aa0b24f323413f3353d9ac3a69
+。
+常州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一上线），点击查询：https://github.com/helteal/shanghai/commit/551eca28d813ea029ab599b649eb8417d1cb510c
+。
+巢湖市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/6a0a8a2dd05b37a5591b96b1933c13468e6db10d
+。
+朝阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/bdod1982/shouhhou/commit/e301d5557fe7d430a08ed0e91be21cd72d7c08aa
+。
+潮州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/b87bb80203bcb784acfddeb1a7d04acd65ed0fa3
+。
+郴州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/b147025d62ec6e11498208de308aa387e72c8ae9
+。
+承德市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/helteal/shanghai/commit/12b85f9d6abcf6d93407671d549373c143d2b2f6
+。
+成都市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/bdod1982/shouhhou/commit/2862f3bcffa23207f63e0ba316a70058d34a242b
+。
+池州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/0e4c157b32be3b0b243cd9c20b0fbee4f9a70ba1
+。
+崇左市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/helteal/shanghai/commit/edcdd8f298bcf07a633e7addb8cd6f4a2ededb88
+。
+滁州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/2b0602432607c76bfab671c1a2af80d656c66c78
+。
+慈溪市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/bdod1982/shouhhou/commit/87784371c3b0f6bcbdb906525a66dc063637884c
+。
+大丰市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/3dee53fea632f939554fc355c3d0d6d406ad372c
+。
+大理市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/helteal/shanghai/commit/84d82c62096b93d1a20118d141213ca3930dd227
+。
+大连市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/b2c4924cc4e4a5a31f131e8496dc797a9bdc3112
+。
+大庆市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新推出），点击查询：https://github.com/bdod1982/shouhhou/commit/d4675e7f80802420bc78584b50be4f56ad54df6b
+。
+大同市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/442eefdda9e40b11a0d03b197f8e213fe1e7059c
+。
+达州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/5f26e84f4bc309ce32d63ae5f4dca82e39049881
+。
+丹东市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/helteal/shanghai/commit/3eb6c706924806c0731a4c72eceb8bd1f9bd83d7
+。
+德清市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/a894fbfe7859f9ed83ce719aba5574a765af87e8
+。
+德阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网推出），点击查询：https://github.com/bdod1982/shouhhou/commit/c50b842719d42cad1b4db8a0dcf33a54181ea11f
+。
+德州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/helteal/shanghai/commit/2564cefcff1c140ccf228188ca4d77b5bd571e0c
+。
+定州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/481359b1ea9e53e7ddb09b25495db654c6da7c50
+。
+东海市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/24aaa3f2198caff70050d050cfaaf21bb8ec9b94
+。
+东台市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/bdod1982/shouhhou/commit/8c635947cdab1f38dce916b216efc46e8cb4af23
+。
+东营市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新公布），点击查询：https://github.com/helteal/shanghai/commit/ded0ffb4f11f2cbd54fc62bf68175e929a1158e6
+。
+东莞市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/ab850f93aa28ad3ae115437e3b13e59a122b7e8c
+。
+鄂尔市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/67963c4914c27f56ff3a918b27aa7666ba579e46
+。
+鄂州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/bdod1982/shouhhou/commit/3efb3731de5bd8eb2c92375184ebbd4206a5d945
+。
+恩施市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/6d6888e9d55476ae79600d0c7e33e3b0fd57016f
+。
+防城港市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新上线），点击查询：https://github.com/helteal/shanghai/commit/ce1f03dbc2862440eeb7c25bf188d331073ba89e
+。
+佛山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/41d20660a7a3ffcb2460e160e8f201664df55d16
+。
+抚顺市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/bdod1982/shouhhou/commit/3918ed5fbd271c862e7d5c23466ca3a6571f9296
+。
+阜新市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式更新），点击查询：https://github.com/helteal/shanghai/commit/cff89de531417a2fa53ba39bc85c483d6ece7915
+。
+阜阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/a8520c7578d923756d339eafbc836ace15e91121
+。
+抚州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/3f265359a4a148cec505be9549313865839933a0
+。
+福州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新推出），点击查询：https://github.com/bdod1982/shouhhou/commit/13d083cd493f7671d03e5698b04ba18dbf2e4d24
+。
+赣州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网推出），点击查询：https://github.com/helteal/shanghai/commit/5e5b8351e482c903a08aba42d1c6331e18bb2789
+。
+馆陶市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/68d50bd810c9b7c7a9d81070a2e30f15c8799ef5
+。
+广安市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/4bdd471f09171e9fca3022f033d026cd9480c5d1
+。
+广元市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/bdod1982/shouhhou/commit/a06ea7af228c3f55c7278ebcef2cd8936a535709
+。
+广州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/d03cf5d2094b9f849ceb5653269804fa1a0f0684
+。
+贵港市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/helteal/shanghai/commit/5ae110592cc75d618ba95760a156aeb1def63ad1
+。
+桂林市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/26dba31027e5d7d1d35bea19bad5e75b1bcc8859
+。
+贵阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新更新），点击查询：https://github.com/bdod1982/shouhhou/commit/fc9420d1c47a228351b81514476e2695d694acc5
+。
+哈尔滨市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/helteal/shanghai/commit/60a16c1ff8d8cc5917d702442a932c149ab7db42
+。
+海安市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/7f65f2d5e675cffe87bff730969033112b5015d8
+。
+海口市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/e0bf8f16ef9a07a9d7b565a3468156efd8d53da1
+。
+海门市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/bdod1982/shouhhou/commit/e99789aedda79a7de82614f836df94690322309f
+。
+海宁市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/helteal/shanghai/commit/6e8f6edb24e8d79e4026471ed430b221290ea55a
+。
+邯郸市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/bc028085c06ff1126b69f0e95b980e22db3fc68f
+。
+汉中市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/85072bff6d244e8ae2b560c53415892a8ead8afb
+。
+杭州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/bdod1982/shouhhou/commit/78fc1055ab11ccbbab3cf24512aaed42b19448ad
+。
+鹤壁市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/helteal/shanghai/commit/ee91a64c2dbe1183277ac40278984a8b3f280645
+。
+河池市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/084b5e4e60495738998b9c2b537184246645c04a
+。
+合肥市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/c703eff5c334122114f483521c29cbb6832c6e84
+。
+河源市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/bdod1982/shouhhou/commit/92a792ec95f962a9e0e3f0b3466726241914e640
+。
+菏泽市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新推出），点击查询：https://github.com/helteal/shanghai/commit/520b39c340bb283e2cb675544dc317e7577b827b
+。
+贺州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/a6c64f626df38f9a16cd6a5d7f5b398da66d526d
+。
+衡水市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/417a46cb16f52edc5361e3d6c75711c4f648a83c
+。
+衡阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新上线），点击查询：https://github.com/helteal/shanghai/commit/8e857c97f0fc8f133e72c7408aad80c54d7ae92a
+。
+呼和浩特市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/bdod1982/shouhhou/commit/47bb30ed64262e71ccdbc9349b3228fcf06cf884
+。
+葫芦岛市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/c65a5686cb22d87ae77f3fc177d717f3ea4f4848
+。
+湖州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/617fb0ede4f433d28d59ebb3f3b26593a59cdff1
+。
+淮安市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/bdod1982/shouhhou/commit/d8d4dfad6fe5cdbff560c992ea505e71e84c2776
+。
+淮北市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/639e3739d8186ba4df44c2609bf5af5f3c87a8d0
+。
+怀化市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/helteal/shanghai/commit/65931c07dee34a0c7d04984efec096c061e7d95a
+。
+淮南市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/bbf18a7ce274916a26452919fede65915234886b
+。
+黄冈市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/bdod1982/shouhhou/commit/1eafa48726bd93b8415b1d4aa1c2d300799760b2
+。
+黄山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/helteal/shanghai/commit/7a2d4416b2f70f48fa492e1dc148f2a38ab634e5
+。
+黄石市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/bdab65cbad9e81cdcf83e86d29a9b23e0892cb96
+。
+惠东市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/190bdb84398fdc914d1e631b0edc38f3fc6b82ae
+。
+惠州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式推出），点击查询：https://github.com/helteal/shanghai/commit/dbaa99b90bbeca89491d174beb4dfb11001ba324
+。
+霍邱市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新公布），点击查询：https://github.com/bdod1982/shouhhou/commit/bcd58f4966e6ce43570a0cf51c7505cea21b2425
+。
+吉安市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/7e23565501f70ec25f6bafe3e1fee829af4bd1ea
+。
+吉林市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/cfdae772335e9534e5b6dbc211705c4384bf78c6
+。
+济南市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/ce1c772bf4284d0671dd90157c6c8135eb21bd88
+。
+济宁市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/bdod1982/shouhhou/commit/f2e0faaa75de50a300f3dd4f0f446c7f964a3622
+。
+济源市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/helteal/shanghai/commit/367921c091054f837f709f756e9fb4f4b8483b4a
+。
+佳木斯市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/bb5b0ecedbf4d2cf4453ecb97a6df1d6876feef1
+。
+嘉善市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新升级），点击查询：https://github.com/helteal/shanghai/commit/c37086448ddf2b3142a0a9b414a1766005fd6173
+。
+嘉兴市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/ee5f0114ac864ad7c81b6066eb5a3fb20f48e190
+。
+嘉峪关市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/bdod1982/shouhhou/commit/36a2fd487e5dd80c4afc8fd746b88265da41e578
+。
+建湖市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/d6172982bf0d66079703c200a8908bcc60fbbd04
+。
+江门市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/helteal/shanghai/commit/507dfe6769847887b82f70167db71d9dfdc065c4
+。
+江阴市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/a0f8c4f8b8a1eaa2b7fa80a042474312b81bc944
+。
+焦作市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/93e1f1b7eb16090558183695b65122faff103b0e
+。
+揭阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式公布），点击查询：https://github.com/bdod1982/shouhhou/commit/5858e2f6c2b9cc5c03dd4d1b831f6b3effccd764
+。
+金华市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式公布），点击查询：https://github.com/bdod1982/shouhhou/commit/724dcf28c887546c12138f06c50c004799e444ee
+。
+晋江市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/a1ffd64040d2ddd1e5b83d752eaba1e7cebacf88
+。
+锦州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/helteal/shanghai/commit/869c78c97560cdce25e98209fe320ac162985229
+。
+景德镇市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/68e1fc7a7822041589983dcd2f52898a9cb9de96
+。
+靖江市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/bdod1982/shouhhou/commit/6c8a6d9ba64f7bac7911070d362fb8074da05538
+。
+荆门市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式更新），点击查询：https://github.com/helteal/shanghai/commit/635c3053b3542c59bf2671f427d13c785390c573
+。
+荆州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/5ddee3662abcb74e1484d487ed9aeaf8390e5e73
+。
+九江市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/5e674a41a87bfaed9ba50d2d0945f06f44c075fb
+。
+喀什市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/bdod1982/shouhhou/commit/82eed76c920fd39110edef8458bd072f6fdbedbe
+。
+开封市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/helteal/shanghai/commit/0386f8e9201e7a3a4d5e9a93ebc918345cedeb68
+。
+克拉玛市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/4b7b17e0ff53feed4b7e69424951d2b244f9d42e
+。
+垦利市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/27d6a4622704c51695580a8ea31b0569040abfda
+。
+昆明市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/bdod1982/shouhhou/commit/0de2996ed10adc6cebb5d5e83725fce9c51e7d55
+。
+昆山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/28283ae754c200a85440e0de4bd53fec44961af5
+。
+拉萨市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/helteal/shanghai/commit/318f4abc9b39fe71921ce79ea98c19cc790e1c48
+。
+来宾市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/666f297d34b9cca4b91803d04f32f7a046b9571b
+。
+莱芜市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/bdod1982/shouhhou/commit/a1c4fd12b65272e0b757ec364885e6ad78234c73
+。
+兰州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/helteal/shanghai/commit/34c2dbd7d1df8653b3791e1f086dfb8530518fd0
+。
+廊坊市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/4cbc6b00e2b46176c6c05ab187b017dae39e0734
+。
+乐清市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/075276c9a5a7e6810c596103f0da121e8a9cbb3f
+。
+乐山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/bdod1982/shouhhou/commit/cc8454fc40f693b862fc5c07ecbbff4b579578e0
+。
+丽水市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新升级），点击查询：https://github.com/helteal/shanghai/commit/fa0226413da1f1246e8e97b86a6eef3725dc9e6c
+。
+连云港市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/1cc161e7bd52d872e55b3c004c9adaa12d8d2d67
+。
+凉山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/d9d573ca8c7520c0312c63ffdf5aa2842c959b90
+。
+聊城市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/bdod1982/shouhhou/commit/78c493486288553ae38165f025e516ce1fd1c689
+。
+辽阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/15db58c2c56755ec561301482575c6eb461f031e
+。
+临汾市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式更新），点击查询：https://github.com/helteal/shanghai/commit/a59edb91770439938b4c40a67712b54884804e4a
+。
+临沂市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/65ad89ce9e6d07e7c5530dc600497692d7d67843
+。
+六安市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/bdod1982/shouhhou/commit/03dab5ea0278e2a092bc1acba86bc95b03d28ee2
+。
+柳州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/helteal/shanghai/commit/7ee74ea52950b7e746958aabf85122e77ef4c9fd
+。
+龙岩市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/88b9511328798a0bcca07a8f4d9a0c2648fb522a
+。
+娄底市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/daeaebd26035a7ef1e85c5875f7d6b38285a55b0
+。
+洛阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/bdod1982/shouhhou/commit/4235b02ce50e57c147d378bdbbfde0243672c036
+。
+马鞍山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/helteal/shanghai/commit/b6c4bd87e7c9537842ff85b03fd2d63fc7288e3d
+。
+茂名市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/aa05c06a622457728eb58067ffeb5333cb2d81a2
+。
+眉山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/59dd040b5b9b82022e3c092c3747352c0c6e4501
+。
+梅州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/bdod1982/shouhhou/commit/38ceb842e54c53814034684f5441f99a5cd6e782
+。
+绵阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/ea262a8b4a5ab866c8d3b649863da3c31859ff34
+。
+明港市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/helteal/shanghai/commit/9a22c3d23ab8b1dd3b7b4fdd423383b5cf0cfced
+。
+牡丹江市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/ed82d9549c420e18d2b71fb6ff9ea905259c2acf
+。
+南安市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网推出），点击查询：https://github.com/bdod1982/shouhhou/commit/5131e94094fc5532f922aa8bee6abf97528c7a7b
+。
+南昌市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/helteal/shanghai/commit/af713368b0c1c440824f15ea3e5b0e794a14e655
+。
+南充市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/bc55657b1d005d8ec0b9ff012208a2d0b5f70172
+。
+南京市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/a7c1c8368f3c9a0e4ea2ecc5ec8da00a1f8a43b4
+。
+南宁市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/bdod1982/shouhhou/commit/d96bf7ae559c2221dc11bd24500f39117ea1f88e
+。
+南平市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/helteal/shanghai/commit/ce84da05784454e00e9aad5fe02ab51756cb452f
+。
+南通市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/e473228d87ffd42197dd061d51be857bbb5fd2c8
+。
+南阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/f889159fcc9e2decdeb6ceb6d858183f809cbc69
+。
+内江市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/bdod1982/shouhhou/commit/5ec438e3d47a707697838002a2335e01a2eb9358
+。
+宁波市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/ed788e400e0d1d1deef247a5b87b87234015f7e4
+。
+宁德市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/helteal/shanghai/commit/a394b7b6ec512e2f4e45bdc6500cd48ddeaca94d
+。
+宁国市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/c25738706dd29c74a791e8fd5ebf3e3adf70d2b2
+。
+盘锦市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/bdod1982/shouhhou/commit/e0d17174cd9ec9a3d706680a5ae40e967a7852a4
+。
+攀枝花市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/e69798e5718fa6e77184b6ed28abafd5f1584682
+。
+平顶山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新推出），点击查询：https://github.com/helteal/shanghai/commit/ac728b734cbc54d0f9f8223072bc32cee4ae9d02
+。
+萍乡市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/56e401c99e198d97d6b3518694c01689a9087c8f
+。
+莆田市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/bdod1982/shouhhou/commit/a6d3348d4737982a9bfbc050b7aa678b0913098e
+。
+启东市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/helteal/shanghai/commit/821042d407a7ad007bdbc047b5a437dd6c42b369
+。
+齐齐哈尔市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/602b5b8ec1dfb2d80f901c64e4b7925e96e9edd9
+。
+潜江市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/069b12e19915a2858cec535b2fce66ed4daf3d16
+。
+秦皇岛市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一公布），点击查询：https://github.com/bdod1982/shouhhou/commit/ff557e989d83975ad887e2a7ed40b5397a5ba143
+。
+钦州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/439cbed30847f5d1a594ea1d1d6f972c1779c2ed
+。
+青岛市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/helteal/shanghai/commit/9efd0d75edac339fb605bb83c20197d7f88718b4
+。
+清远市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/bdod1982/shouhhou/commit/e71b87e31fc10ee2530799391c8fd38dd0bd6ebf
+。
+曲靖市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/af3259133aaf89a851e522f1c383d8a73af48d0e
+。
+泉州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/helteal/shanghai/commit/f8365584b5b224e489bd6c76edf1c523623f35b9
+。
+日照市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/cc4290495fa16e643d50f329e4daa5468087a263
+。
+如东市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/6bed6c9a46f892cf35abff97806752542b6be39c
+。
+如皋市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新推出），点击查询：https://github.com/bdod1982/shouhhou/commit/03915e640c847d4bf864ba3d81e7acc79edbb771
+。
+瑞安市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/helteal/shanghai/commit/6c3e950a089992fe9caf62720e2cfee65f3f2a47
+。
+三门峡市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/4fd9783d15b1ae774763e183ae2bd6bb69d5f6f1
+。
+三明市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/9e00ec60a4877966bbb1a04386b029b2954b21de
+。
+三亚市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一公布），点击查询：https://github.com/bdod1982/shouhhou/commit/fc2bcd2861de7980fd3ec437c03d43d25ec3ea91
+。
+汕头市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/4d4ad08017cce67beefbf006339f49fb05a14a95
+。
+汕尾市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/helteal/shanghai/commit/0b3a87d8f3b902a414dd2dd82bab2373b0fa51b4
+。
+上海市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新上线），点击查询：https://github.com/bdod1982/shouhhou/commit/e28786a5950372b9c80f8b9b02c8c718e57baa93
+。
+商丘市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/721f6391933fcf6a4637271d1c4ba2a70e031ba4
+。
+上饶市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/helteal/shanghai/commit/f2e0059fc1a454aa55d6f7a20652547aa3b34052
+。
+韶关市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/d41e0500cedd943dc2ed122e10893cc917201a20
+。
+绍兴市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/bdod1982/shouhhou/commit/3f6c2eb6d72113f32085f4f32ee01bd6d6e44a82
+。
+邵阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/399257fc004cae4e1b144b56e4394c82a7729b39
+。
+神农架市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/helteal/shanghai/commit/622ad7ccd109691fcd69f0f8a9998f9631f94c24
+。
+沈阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/32f807913ee9bee86e76e6779ff2033a3f66e4d2
+。
+深圳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/bdod1982/shouhhou/commit/78e7cac5efa93efe683d271b40d0060bf8930704
+。
+石河子市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/6873c03adacf1bc2f7f10234e90817ce2dc245ee
+。
+石家庄市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/d98ba259026c81a1ba1179d9133e888a4fdff909
+。
+石狮市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/helteal/shanghai/commit/0bd016130dca50ce7acddaf2a425da6266d37632
+。
+十堰市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/bdod1982/shouhhou/commit/575a4f77d3de86b58706a5059dc03e8483870069
+。
+寿光市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/bb3de64dcace38865e718d1836af224a685e04e1
+。
+顺德市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/helteal/shanghai/commit/0dffafe0a2ebd352c8a6b5649e8a6e7e024fca3f
+。
+四平市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一上线），点击查询：https://github.com/bdod1982/shouhhou/commit/d5a8fe89e26932b18f491878b05f5f6f6d2bd6a0
+。
+宿迁市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/3853fc220d1b49e3ed410537c3e4c1a6ad62039d
+。
+苏州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/0021ed4731ddf3243c033ac2fb776e9e5089390e
+。
+宿州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/helteal/shanghai/commit/4e015ad0d055a3ce34cf7cd60103d0ad357e6e5f
+。
+遂宁市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/fdabdc5fda534a13388881796b73d9f1cab5869e
+。
+随州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/bdod1982/shouhhou/commit/27c11e5aacb3c3705ae933431bf75a12c1583169
+。
+泰安市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/9390dce586af4617c8826025862d7a90ddb0fa05
+。
+台山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新公布），点击查询：https://github.com/helteal/shanghai/commit/db575e78f1ac88171698d76f535697286e2b45f6
+。
+泰兴市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/09f462455e1f489ad169316c28f778235544fac7
+。
+太原市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一上线），点击查询：https://github.com/bdod1982/shouhhou/commit/bf7cff535f86f8c597af7d1d59543f5b5e589865
+。
+泰州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/628685a773a4554f9e6ac73d527caba643ace8db
+。
+唐山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/helteal/shanghai/commit/a480c995aaffe62314d77c094cc72b2fcae89871
+。
+天长市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/5b488a469445dc0da602bfb2bbaa336708bbbc3b
+。
+天津市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式更新），点击查询：https://github.com/bdod1982/shouhhou/commit/7a08abe09c881ee30f0aea994bb499eaf2840ace
+。
+天门市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/fde87282c01e24db2bb3d380ee276e5067641bbd
+。
+天水市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网推出），点击查询：https://github.com/helteal/shanghai/commit/2678b1cd21d85e26d0f7007b9142cd3f5119872a
+。
+铁岭市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/bb5cefd6836fc44626b69f43ea0e7a935e31bc08
+。
+桐城市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式更新），点击查询：https://github.com/bdod1982/shouhhou/commit/6a58a7303a54582661dd2a7c6a8e95b26057d09e
+。
+铜川市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/24df240e84fae170ada4ddd065679a06868ab221
+。
+铜陵市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/0e2e963eccfb8bdc0c972436d15926f8c9e1b50c
+。
+桐乡市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一上线），点击查询：https://github.com/helteal/shanghai/commit/2f93eba768581a0d83c7e11b1587019799deb4e9
+。
+瓦房店市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/bdod1982/shouhhou/commit/079cd01ae3c643730bd53b263d902152af540cea
+。
+潍坊市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/31088a876bac66fb68707618f7129fe54a128e55
+。
+威海市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式推出），点击查询：https://github.com/helteal/shanghai/commit/cd1070fb9f7023ff3455d5fc8cac3f3e1f46c5d3
+。
+温岭市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/644993e9c271d9aa86c5c8d5f14da86f9ffc386c
+。
+温州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式推出），点击查询：https://github.com/bdod1982/shouhhou/commit/ddd3f806d6865f82c75ef76c611d0f91c744688a
+。
+武汉市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/cf41971cf06bc9a4c7a19b0494892cbe67fd0fcc
+。
+芜湖市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/f16fd1630f103c6dfcac39bbf4919914f62db2cb
+。
+乌鲁木齐市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/helteal/shanghai/commit/3cae9e65b21b4ee91d82ba430333dc69d9b96956
+。
+无锡市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/bdod1982/shouhhou/commit/86ac6b02d4f1c4c475f1cab07a1f6fc3ff85d74d
+。
+武夷山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/618bc4233855afe3f4cf7b219d923cd87406edf4
+。
+梧州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/05543aebdcd1388f26df5ee7d1c2f6864cbaf811
+。
+西安市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新更新），点击查询：https://github.com/helteal/shanghai/commit/0cac3a87df861d76af9fc5b86d7c6c3baa97feca
+。
+西宁市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/bdod1982/shouhhou/commit/747e24788cf6e53866aeffc4de484178f84e45da
+。
+厦门市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/0de47a4a8c86685b27966a0967a19ae4ca950a0a
+。
+咸宁市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/helteal/shanghai/commit/717d0b328bd885eb189c9f5b951dd7358ae267b4
+。
+仙桃市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/fcf420a8ea88f267598036d8179b3fd6b9a5a95d
+。
+咸阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/bdod1982/shouhhou/commit/394912b56f924c81da1a2cc1f18f19d13445b4a8
+。
+襄樊市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/d3a6c662ee25f69466035d253c600b4f70b6db6c
+。
+象山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/helteal/shanghai/commit/f2f3f88eaa1d5b1f50aa400c93d631cd21d78625
+。
+湘潭市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/ccf800dff7b6acd11df467ecb58e23bb8543dfec
+。
+湘西市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/bdod1982/shouhhou/commit/907131b111c97ad4919dfcf56cd72ec858e04312
+。
+襄阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/2d45bec38808168635b0aa888f5768f96cc0c078
+。
+孝感市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/6a0a3454f0fcbe352ffea763641fef2c751ad687
+。
+萧山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/helteal/shanghai/commit/8e0b6e05f4fa7dee1922790dca57ae0be77fc7f5
+。
+新乡市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新公布），点击查询：https://github.com/bdod1982/shouhhou/commit/c647dad220e44b4de937263156ab947cb4b7d1fe
+。
+信阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/e138d552d3002903fdfbbe3cdb43ff345d04ce4b
+。
+新沂市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/helteal/shanghai/commit/5d4fa17e9b0b023fd6a676fb635004005ade5eb5
+。
+新余市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/90ec7c3c56e631d5a7757f6ee433367adb1ae13e
+。
+兴化市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/bdod1982/shouhhou/commit/89ec58d0d6fa0aa4a2d52b478ad4213a4d2d2a03
+。
+邢台市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/00b871fc2d217dd0fd1e43381ee8782320efc8b2
+。
+许昌市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新更新），点击查询：https://github.com/helteal/shanghai/commit/33e7d9e56dcfc6b4f8a73b4757b7de0b36556277
+。
+徐州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/fbb52d5467a68121aa04e108585c42b6247e51ab
+。
+宣城市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式推出），点击查询：https://github.com/bdod1982/shouhhou/commit/aa77626472ca27e791ecaac514124a81181b6013
+。
+雅安市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/31e799e2dcb1925fe8fc3f6733144be3785faa02
+。
+延安市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/0535a72a1724f18c6442df7a44db969c8796bfd0
+。
+盐城市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一公布），点击查询：https://github.com/helteal/shanghai/commit/5cc52a967bf4dee15ffe44c03dcc52d177223f4c
+。
+烟台市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/bdod1982/shouhhou/commit/edd3ab8751cfff63f3ee2ff1eb3383ad99e91658
+。
+阳春市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/9c17220c83b1a14801b5ca5abe1901ef81247dd0
+。
+阳江市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/helteal/shanghai/commit/a022a89632f69e8d9104993e745a0e35ad075cae
+。
+阳泉市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/bdod1982/shouhhou/commit/d0b0e7b30a49478ad8320b4f737589498421a56d
+。
+扬中市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/a207767ac3c2b75475a0aa2934cdd703f1be5212
+。
+扬州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/d730d5e36e90174c0f03dbdca447cc2620f3a2fa
+。
+宜宾市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新升级），点击查询：https://github.com/helteal/shanghai/commit/0befc950032b68effd023387daf2e863bd3b7e66
+。
+宜昌市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/nabhaneddgin/jiadian/commit/89c9f6a1f15de3b68a90327c382c323310fe5475
+。
+宜春市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/bdod1982/shouhhou/commit/33d98b6a45a7a6d2c262a1e4725f992e949c9022
+。
+宜都市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/ecbbca24d548a9113933f13b3087a1e0ff7edeb4
+。
+义乌市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/7db8a0f22dd57ef7f30786433685f4446ef7388a
+。
+宜兴市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新升级），点击查询：https://github.com/helteal/shanghai/commit/3845ecf33ef3b774e0618ab7ff49b312009e27a5
+。
+益阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新升级），点击查询：https://github.com/bdod1982/shouhhou/commit/6d6395476150e2c715eb577065bd962b1bd7a65b
+。
+银川市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/fb2471a36f4f0b7f139bb96db0a0af4119b2d1e9
+。
+营口市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/helteal/shanghai/commit/90b5e85da7a18e505e510f674b3a035e8951c136
+。
+鹰潭市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/bdod1982/shouhhou/commit/3dff8c4ac13072dbd76d5089166e3968943cae96
+。
+永新市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/73234caa5c50941a1b2212b9ebeb6f16453e9690
+。
+永州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一更新），点击查询：https://github.com/lcrewline820/jiazheng/commit/887c8843d5e7220f81a5558fe40e649db8339fcb
+。
+榆林市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式公布），点击查询：https://github.com/helteal/shanghai/commit/cedc04c1c735a0dd0fc3ed3ec6f33bbc36ecba8b
+。
+玉林市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/bdod1982/shouhhou/commit/d0d5b40def2d5215a1b3beae4303d9ad712f9be9
+。
+玉溪市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式公布），点击查询：https://github.com/nabhaneddgin/jiadian/commit/8348649b6f3f1916678b5cdf11e8868ce4538785
+。
+余姚市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/cd1ca11b76e0ee7b22c6cc1e20f446f6903ed5bf
+。
+禹州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新更新），点击查询：https://github.com/helteal/shanghai/commit/79a03ad2e9edae973f8a498d380c32bc92049321
+。
+岳阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/deb5f59386a32609c740fe752a4db4573078e9c2
+。
+云浮市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新升级），点击查询：https://github.com/bdod1982/shouhhou/commit/b50ebccc29674eabc11daef22a80efb7ff68a3a0
+。
+枣庄市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/a39b6616443158c366fa96e85d0b8ef09f6eb12f
+。
+湛江市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式更新），点击查询：https://github.com/bdod1982/shouhhou/commit/1fd5c5f782d05c9d5ee678ff64362d75d3b8e04b
+。
+张家界市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新更新），点击查询：https://github.com/helteal/shanghai/commit/7f1cff0f4e24c1ac21fc444673eed8a9a8657ead
+。
+张家口市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/da982beaf5f0d441401a0d2c39b3877c4bebe8c9
+。
+章丘市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/7409152c234ecd9e5f52685d9d3721f502a6df16
+。
+漳州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/bdod1982/shouhhou/commit/8ab5f789591cd3183a5e84d698ede42ea3906302
+。
+肇庆市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/helteal/shanghai/commit/dcebbba5dcb504c6c813cd34fcfae2be8dc5770a
+。
+镇江市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/lcrewline820/jiazheng/commit/2cacb6fcae699b509973ea1de6ce205ee8bed01b
+。
+郑州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/b7788682382a372149b471ae6684cd9d4edcc835
+。
+重庆市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/73bde71b85956ecf482525352a252471595667f4
+。
+中山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/helteal/shanghai/commit/639a87833f1952f4f15ff3c23f6b0247b9868a4d
+。
+周口市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/bdod1982/shouhhou/commit/368a5c657d44986612b55e28032249013207b1ee
+。
+舟山市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/daca8bb39646dc2c6a7265cc5b1b1d2824dea907
+。
+诸城市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网上线），点击查询：https://github.com/helteal/shanghai/commit/6d6dae44f009a6e6a69b33ed112ab9cf1bff7c62
+。
+珠海市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/33137ccdb97558db6342097afb714ed847941325
+。
+株洲市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/bdod1982/shouhhou/commit/ece149a3e880b83eb64b039b45f8ebaffc9f4bcc
+。
+诸暨市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新推出），点击查询：https://github.com/nabhaneddgin/jiadian/commit/3ea7ebf6f941dd63b9f349c62d6bf8375c1f1aec
+。
+庄河市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日正式升级），点击查询：https://github.com/helteal/shanghai/commit/2a5f8d50cb80886b0876ae9a068ec4cd5bab7eed
+。
+自贡市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/lcrewline820/jiazheng/commit/cf3b972a67aca8c6b0783760992ea6ea47f95b7b
+。
+资阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/bdod1982/shouhhou/commit/709c0818e047d544815be5eb62afa462c46d7978
+。
+遵义市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/16217cc0d3a81eccf79e9415cd721ffe6955b88b
+。
+漯河市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新上线），点击查询：https://github.com/nabhaneddgin/jiadian/commit/da20b81447cfe57e09f00a682c2fa6ec87ea2d4d
+。
+鄢陵市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一上线），点击查询：https://github.com/lcrewline820/jiazheng/commit/b3099523593bcd4fdc8d2d21b9631e51cbaa2f4b
+。
+沭阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新推出），点击查询：https://github.com/helteal/shanghai/commit/82c2a666ae59748f13c25a80e05021ef3fbc6936
+。
+濮阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日最新公布），点击查询：https://github.com/bdod1982/shouhhou/commit/0c75178cc07eca766bd93bac2a56534df556f404
+。
+溧阳市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/helteal/shanghai/commit/835b8f8829ea4a618424ac149e44713536d0f6c6
+。
+泸州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日统一推出），点击查询：https://github.com/bdod1982/shouhhou/commit/37dff423563984ffd60c5b7785974b63725caacb
+。
+衢州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日全新公布），点击查询：https://github.com/lcrewline820/jiazheng/commit/023f19dafbb17c4419d1ad6690ac71d36f04bf73
+。
+亳州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网升级），点击查询：https://github.com/nabhaneddgin/jiadian/commit/12ddf94a406078fc51bc2de8e3cee1067f4f5f58
+。
+邳州市vaillant热水器显示f.20错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月06日官网更新），点击查询：https://github.com/bdod1982/shouhhou/commit/bd3cbf34572d9e134b1648edfac35ceea1d3fec3
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月06日15时25分19秒*
+*数据来源：新浪财经、公开媒体报道*
